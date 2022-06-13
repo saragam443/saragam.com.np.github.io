@@ -1,2 +1,2 @@
-# saragam1point0.github.io
+# saragam.com.np.github.io
 [https://saragam.com.np](https://saragam.com.np)
